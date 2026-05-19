@@ -1,4 +1,4 @@
-# 
+# smart Affinity Photo para PC complementos es el mejor Affinity Photo para PC complementos con flujo de trabajo basado en nodos y renderizado. Seguro, confiable y optimizado para
 
 
 
